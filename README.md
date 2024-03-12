@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on web development
 - 🤔 I’m looking for help with orders for freelance
 - 💬 Ask me about Anything
-- 📫 How to reach me: [Telegram](https://t.me/VyacheslavKhl)
+- 📫 How to reach me: [Telegram](https://t.me/VyacheslavKhl)  [Whatsapp](https://wa.me/37129977996)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like everything new and interesting
